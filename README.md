@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vanilla5751
 - 👀 I’m interested in ... math, science, coding, baking, my little pony.
-- 🌱 I’m currently learning ... HTML Javascript & c++
+- 🌱 I’m currently learning ... HTML Javascript CSS Python C++, and arm56
 - 💞️ I’m looking to collaborate on ... no collaborations at the moment
 - 📫 How to reach me ... im vanilla5751 on discord
 
