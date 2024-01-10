@@ -6,3 +6,5 @@
 - my derpibooru is vanilla5751
 - my twitter or X is vanilla5771
 - my deviantart is vanilla5751
+
+i know advanced mathematics like calculus, differential equations, vector analysis, real and complex analysis, linear algebra, mathematical logic, hyperbolic geometry, and many more topics.
