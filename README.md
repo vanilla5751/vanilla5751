@@ -1,5 +1,5 @@
 - I'm @vanilla5751
-- I’m interested in ... math, science, coding, baking, my little pony.
+- I’m interested in ... math, science, coding, baking, Jesus.
 - I’m looking to collaborate on ... no collaborations at the moment
 - My discord is vanilla5751
 
